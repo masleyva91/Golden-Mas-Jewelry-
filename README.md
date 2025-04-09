@@ -1,1 +1,1 @@
-# Golden-Mas-Jewelry-
+# Golden-Mas-Jewelry
